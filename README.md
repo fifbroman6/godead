@@ -1,8 +1,1 @@
 FBI
-gg
-gg
-gg
-gg
-gg
-gg
-gg
