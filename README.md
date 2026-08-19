@@ -1,4 +1,2 @@
-bit
-gg
-gg
-gg
+:wq
+
